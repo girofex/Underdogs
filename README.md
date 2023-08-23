@@ -1,1 +1,1 @@
-[presentazione underdogs.pptx](https://github.com/girofex/Underdogs/files/12421617/presentazione.underdogs.pptx)
+[presentazione underdogs.pdf](https://github.com/girofex/Underdogs/files/12421646/presentazione.underdogs.pdf)
